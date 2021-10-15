@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @arkandzprogaming
+- 👀 I’m interested in progaming
+- 🌱 I’m currently learning python and cs
+- 💞️ I’m looking to collaborate on ihdk
+- 📫 How to reach me: Mahommed Bolge #3905
